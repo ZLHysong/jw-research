@@ -1,0 +1,21 @@
+# Ideas and Topics
+
+- Sex
+  - Talking to parents
+  - Masturbation / Porn
+  - With other members
+  - With Non-JWs
+- Dates and Timelines
+  - Armageddon
+  - 607 BCE
+  - 1975
+- School / Education
+- "Bad Associations"
+- Pre-Sin Guilt
+- Field Service
+- Blood / Disease / Death
+- Sexism / Racism
+- Doubt / Questioning
+- Disfellowshipping / Shunning
+- #NotACult
+- Evolution / Science
